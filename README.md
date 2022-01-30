@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @KeithKnittle
 - 👀 I’m interested in astrophotography
 - 🌱 I’m currently learning how to do astrophography
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I know very little about photography, especially astrophotography
 - 📫 How to reach me: email rem2delta@gmail.com
 
 <!---
